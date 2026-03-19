@@ -4,4 +4,6 @@ im DRY sorry LOL i kinda lWK dont wna make friends atm but im down to talk ok , 
 
 ive LWK been feeling hella shitty lately so iwec oke
 
+u can contact me via [ata](https://empire.atabook.org/) ou [tt](https://www.tiktok.com/@plqnetz?_r=1&_t=ZT-94oFi6oibOf) , i also have discord but ion rlly give that out unless u ask k
+
 do NOT forget i have bpd, this is veerry important owo
